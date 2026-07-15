@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently buiding things with AI
 - 💞️ I’m looking to collaborate on learning new things.
-- 📫 How to reach me : @saikira86814070(twitter)
+- 📫 How to reach me : @advik4u(twitter,discord)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: You need to wake up tomorrow also
 
